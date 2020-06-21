@@ -46,8 +46,7 @@ MOTHNODE
 something's always coming in your mind
 always searching for some preps to calm my mind
 i face it every day my brother what I find is what I get 
-so I'm searching till I'm dead 
-so I'm searching till I'm dead
+so I'm searching till I'm dead so I'm searching till I'm dead
 without any doubts, without thoughts to stash                           /// a-plenty
 life's a circle, we just want to make it right for us
 right by all the people in surrounds, familiar faces one by one
