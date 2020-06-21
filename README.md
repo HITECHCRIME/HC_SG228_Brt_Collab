@@ -1,6 +1,6 @@
 [cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# Brt Eldorado x X x MOTHNODE_ 
 
 **Listen now:** 
 
