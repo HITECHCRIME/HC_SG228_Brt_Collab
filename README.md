@@ -36,10 +36,13 @@ it's our last breath, heaven's open wide
 endless search for the context
 that's what counts for ones alive
 
-we get older with every painful step taken away
+we get older (wit)h every painful step taken away
 wiser thankfully, (it's a) thoughtful misery (from experience)
 next brick for building rep
 comes with a price tag we often cannot take
+towards god you direct your eyes
+it's not often that you come around from this allright
+let me show you the devil's in your mind
 
 storm is coming
 
