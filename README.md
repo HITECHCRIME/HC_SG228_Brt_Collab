@@ -36,9 +36,10 @@ it's our last breath, heaven's open wide
 endless search for the context
 that's what counts for ones alive
 
-we get older with every painful step
+we get older with every painful step taken anyway
 wiser thankfully, thoughtful misery
 next brick for building rep
+comes with a price tag we often cannot take
 
 storm is coming
 
