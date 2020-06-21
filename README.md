@@ -8,9 +8,9 @@
 
 Collab for Hitech Crime Hybrid Continuous Album done with Brt of KZK Familia.
 
-> **Title:** X / **Featuring:** BRT KZK, MOTHNODE
+> **Title:** X / **Featuring:** BRT ZKZ, MOTHNODE
 
-> **Production:** X / **Lyrics:** BRT KZK, MOTHNODE
+> **Production:** X / **Lyrics:** BRT ZKZ, MOTHNODE
 
 > **Beat:** X
 
@@ -22,7 +22,7 @@ Collab for Hitech Crime Hybrid Continuous Album done with Brt of KZK Familia.
 ## Lyrics
 
 ```
-BRT_KZK
+BRT_ZKZ
 
 niebo nad nami czy burza przejdzie bokiem 
 z deszczem napierdala grat odbija sie od okien 
@@ -64,7 +64,7 @@ that's what counts for ones alive
 ? let me show you the devil's in your mind
 storm is coming
 
-BRT KZK
+BRT ZKZ
 
 x
 
