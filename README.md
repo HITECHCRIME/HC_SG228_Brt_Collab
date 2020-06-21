@@ -1,12 +1,12 @@
 [cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# Brt Eldorado x MOTHNODE_ W Ciemnościach / W Stronę Światła / Burza Myśli / Krok Ku Światłu / W Dół Ku Światłu
-
+# Brt Eldorado x MOTHNODE_ W Ciemnościach
 **Listen now:** 
 
 ## Project Data
 
-Collab for Hitech Crime Hybrid Continuous Album done with Brt of KZK Familia.
+Collab for Hitech Crime Hybrid Continuous Album done with Brt of KZK Familia. Alternative titles: W Stronę Światła / Burza Myśli / Krok Ku Światłu / W Dół Ku Światłu.
+
 
 > **Title:** X / **Featuring:** BRT ZKZ, MOTHNODE
 
