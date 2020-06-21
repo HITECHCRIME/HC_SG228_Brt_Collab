@@ -37,11 +37,10 @@ endless search for the context
 that's what counts for ones alive
 
 we get older with every painful crit
-wiser thankfully, thoughtful misery from experience
-
-is the next step
+wiser thankfully, thoughtful in misery 
+not missing the gold of the next step              //// golden experience
 next brick for building rep 
-sure it has a price tag we often cannot take
+surely has a price tag we often cannot take
 
 taken away towards god you direct your eyes
 it's not often that you come around from this allright
