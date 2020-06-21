@@ -38,13 +38,17 @@ that's what counts for ones alive
 
 we get older with every painful crit
 wiser thankfully, thoughtful in misery 
-not missing the gold of the next step              //// golden experience
-next brick for building rep 
-surely has a price tag we often cannot take
+not missing the gold - of the next step              //// golden experience
+next brick (for) building rep 
+surely has a price tag that we cannot take
 
-taken away towards god you direct your eyes
+taken away god directs your eyes
 it's not often that you come around from this allright
 let me show you the devil's in your mind
+
+
+
+
 
 storm is coming
 
