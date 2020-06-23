@@ -6,7 +6,7 @@
 ## Project Data
 
 Collab for Hitech Crime Hybrid Continuous Album done with Brt of KZK Familia. Alternative titles: W Stronę Światła / Burza Myśli / Krok Ku Światłu / W Dół Ku Światłu.
-
+YouTube Videos: https://www.youtube.com/watch?v=8ZST38-XJyk
 
 > **Title:** X / **Featuring:** BRT ZKZ, MOTHNODE
 
