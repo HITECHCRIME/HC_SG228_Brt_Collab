@@ -54,9 +54,9 @@ they're the one's we cannot fall without
 it's our last breath, heaven's open wide 
 endless search for the context
 that's what counts for ones alive
-? we get older with every painful crit
+? we get older with every painful fact
 ? wiser thankfully, thoughtful in misery 
-? not missing the gold - of the next step                                 //// golden experience
+? not missing the golden track of the next step                                 //// golden experience
 ? next brick (for) building rep 
 ? surely has a price tag that we cannot take
 ? taken away god directs your eyes
